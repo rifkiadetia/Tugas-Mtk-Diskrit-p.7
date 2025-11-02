@@ -1,0 +1,1 @@
+# Tugas-Mtk-Diskrit-p.7
